@@ -1,2 +1,0 @@
-# ecohubnepal
-www.ecohubnep.com
